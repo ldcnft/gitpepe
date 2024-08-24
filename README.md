@@ -1,5 +1,8 @@
 # gitpepe
 
+![alt gitpepe](https://avatars.githubusercontent.com/u/132487802?v=4)
+
+
 gitpepe 🐸
 
 gitpepe on pump.fun
