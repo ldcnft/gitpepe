@@ -7,6 +7,8 @@ gitpepe 🐸
 
 gitpepe on pump.fun
 
+https://pump.fun/DfLPLr2dK6dZepzcPCwNEMrKx7mi4p8p9sffz58hPjzJ
+
 
 ``` // ༼ つ ◕_◕ ༽つ PUMP Gitpepe Chat
 // ----------------------------------
